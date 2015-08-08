@@ -1,4 +1,4 @@
-Kdo jsme
+#Kdo jsme
 
 Jsme skupina lidí, které spojuje erotická náklonnost k dětem. Jinými slovy pedofilové. Rozhodli jsme se zúčastnit Prague Pride, neboť vidíme kolem sebe, že má mnoho lidí předsudky o pedofilech. Mnohokrát jsme se setkali s tím, jaký negativní dopad může mít postoj společnosti k pedofilům.
 
